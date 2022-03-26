@@ -1,1 +1,0 @@
-# patrickduarte.github.io
